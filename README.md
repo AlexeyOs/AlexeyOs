@@ -22,3 +22,4 @@ Here are some ideas to get you started:
 ### Get in touch:
 - email: alexeyosetsky@gmail.com 
 - vk: https://vk.com/id313396870
+- LinkedIn: https://www.linkedin.com/in/alexey-osetsky-74ab36121/
